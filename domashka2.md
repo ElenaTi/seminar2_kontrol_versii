@@ -58,3 +58,7 @@
 Ссылка на картинг для Макса [Пит-стоп][1]
 
 [1]: https://karting-spb.ru/trassy/pitstop-premium/ "Переход на сайт картинга"
+
+
+![Картинка подарка](https://papik.pro/uploads/posts/2021-11/1636609432_1-papik-pro-p-podarki-risunok-prozrachnii-fon-1.png)
+
